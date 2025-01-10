@@ -1,7 +1,7 @@
 **Prajwal Koirala**  
 **Certified Multi-Cloud Architect | AWS, GCP & Azure | Cloud Specialist**  
 Queens, New York, United States  
-**Contact:** prajwalkoirala638@gmail.com | (845) 682-0433 | [LinkedIn Profile](https://www.linkedin.com/in/prajwal634) | [Portfolio](https://www.parking-united.com)
+**Contact:** prajwalkoirala638@gmail.com | (845) 682-0433 | [LinkedIn Profile](https://www.linkedin.com/in/prajwal634) |
 
 ---
 
